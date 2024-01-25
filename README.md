@@ -1,1 +1,0 @@
-# Imagenes-BI-VetePinta
